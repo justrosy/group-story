@@ -1,1 +1,1 @@
-Once upon a time, there was a talking horse... add more here
+Once upon a time, there was a talking horse who had a conflict
